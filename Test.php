@@ -1,0 +1,1 @@
+Ketik apa saja coy
